@@ -1,1 +1,0 @@
-# aj-new-ar-projectqbiilh
